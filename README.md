@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LogisticsLisa
 - 👀 I’m interested in ... books, killing house plants with too much water, & self development. 
 - 🌱 I’m currently learning ... automation & condensing software
-- 💞️ I’m looking to collaborate on ... best tips for efficiency
+- 💞️ I’m looking to collaborate on ... the above subjects, & overall any best tips for efficiency
 - 📫 How to reach me ... email logisticslady623 @gmail.com
 
 <!---
